@@ -1,2 +1,2 @@
 # hell-world
-keep learning ,stay curious.
+Keep learning, stay curious.
